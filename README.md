@@ -2,7 +2,7 @@
 
 Need help with CookCal AI?
 
-📧 Email: support@cookcal.ai
+📧 Email: cookcal.ai.sup@gmail.com
 
 We usually respond within 48 hours.
 
